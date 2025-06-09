@@ -1,0 +1,1 @@
+# Ultra-Advanced-Multi-Strategy-MR-EMA-Momentum-BB-Adaptive-RSI-Volume-ATR-for-GLD-QQQ
